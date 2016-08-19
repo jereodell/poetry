@@ -6,7 +6,7 @@ Midsummer disease. The effect and the emptied verbiage.
 Stopped short. How can I say: you that I would love  
 embody the hatred I should denounce. Hollowed
 
-Out, our shared faith, our devotion, lacking  
+out, our shared faith, our devotion, lacking  
 at last, the strength to tear down, break apart.
 
 The cucumber vines have spread to their limits  
