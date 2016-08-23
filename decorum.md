@@ -14,3 +14,5 @@ and bear a daily reprieve. Busying
 
 from blossom to blossom, the pollinators mute the sting  
 and, in such times, I’d shove my whole face in.
+
+>Jere Odell, License [CC-BY](https://creativecommons.org/licenses/by/4.0/).

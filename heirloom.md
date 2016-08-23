@@ -14,3 +14,5 @@ I will to my offspring that they might find,
 
 rooted in a spinning planet, every place  
 a place to call home, a stay against dissolution.
+
+>Jere Odell, License [CC-BY](https://creativecommons.org/licenses/by/4.0/).

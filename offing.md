@@ -14,3 +14,5 @@ But would hunger row among the wind, beyond
 
 the fir and pine, out over this earth's curve,  
 then, there, would no other murder be but of our kind?
+
+>Jere Odell, License [CC-BY](https://creativecommons.org/licenses/by/4.0/).

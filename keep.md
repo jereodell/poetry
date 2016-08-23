@@ -14,3 +14,5 @@ Scar, some kind of earning, facing incoherence.
 
 Trickle off, beloved, drip away in the sear; leave madness maddened;  
 a demoniac gnaws a shin, one grinds the very bone, root and jaw.
+
+>Jere Odell, License [CC-BY](https://creativecommons.org/licenses/by/4.0/).

@@ -14,3 +14,5 @@ Future memory. My myth. Having toddled off
 
 after the family dog, I am born of this waterway under an indifferent cloudscape,  
 this silent film, this blue iris of revision is of no one & no fool's home; not even my own.
+
+>Jere Odell, License [CC-BY](https://creativecommons.org/licenses/by/4.0/).

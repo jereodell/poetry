@@ -14,3 +14,5 @@ and pumped back to the orb of her great blue eye.
 
 Yes, prophet, we are cursed, but who are kept for a day,  
 but who wait upon her mercy in such a gaze.
+
+>Jere Odell, License [CC-BY](https://creativecommons.org/licenses/by/4.0/).
