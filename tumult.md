@@ -1,7 +1,7 @@
 #Tumult
 
 Our footpaths breaking amid the dunes and the great lake  
-awash in gull feathers, snack wrappers and foam—bickering
+awash in gull feathers, snack wrappers and foam -- bickering
 
 and young, we were the scorched earth and we were  
 in our tumult, besides all this, love's entertained.
