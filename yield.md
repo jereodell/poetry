@@ -7,7 +7,7 @@ But look, if you have eyes to see & listen, if you have ears --
 the cupbearer in her beauty is the end of all faith & reason;
 
 the girl singing her way down the beach, robs the mind of order.  
-Let night come, it will confirm this carpet of dreams.
+Let night come; it will confirm this carpet of dreams.
 
 She carries to him, in one palm, the conservatory in bloom;  
 her lap yields to the florist, flowers in their season.
