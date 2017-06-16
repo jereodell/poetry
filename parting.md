@@ -1,4 +1,4 @@
-#Parting
+# Parting
 
 The country weep -- focus, the eyes lose track, recess  
 and the mind bends to the backyard garden,  

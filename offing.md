@@ -1,4 +1,4 @@
-#Offing
+# Offing
 
 A lone crow drawn to snow melt on tar paper  
 tracks the winter sun across the patio roof.

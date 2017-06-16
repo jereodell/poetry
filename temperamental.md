@@ -1,4 +1,4 @@
-#Temperamental
+# Temperamental
 
 Did he become a friend of the king? Or else, why would he,  
 Ghalib, strut through the courtyards at mid-day?

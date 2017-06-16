@@ -1,4 +1,4 @@
-#Curse
+# Curse
 
 Shadow of the man who fled his daughter,  
 hid in the darker corners of her dreams,

@@ -1,4 +1,4 @@
-#"History is devoid of poise"
+# "History is devoid of poise"
 
 When he finished reading the book, he tied it with a strap  
 to a stone and heaved it deep into the Euphrates.
