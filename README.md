@@ -1,4 +1,4 @@
-#Preprints in Poetry: Why am I doing this?
+# Preprints in Poetry: Why am I doing this?
 
 *First, a confession:*  
 Yes, [I write poetry](https://github.com/jereodell/poetry). In fact, I've written poetry slowly but persistently for more than three decades. Most of it is complete garbage; some of it has been published in literary journals. But a great deal more, of modest quality, has never been published, submitted or shared. The last fifteen or so years have been largely dedicated to a single form -- five couplets, generally not rhyming; ghazals, loosely understood and (at times) loosely "after" Ghalib.
