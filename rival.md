@@ -9,7 +9,8 @@ on light poles and curbstones, begs
 man and dog for her requital. I'd worry,  
 but I too recoil from her touch, her blade rich generosity.
 
-Embers among ash, her laughter evokes certain  mortalities and besides, what is love to command?
+Embers among ash, her laughter evokes certain  
+mortalities and besides, what is love to command?
 
 Between us, Ghalib (or his angel) minds a vast curtain,  
 itself a kind of fire and a yearning to lift.
