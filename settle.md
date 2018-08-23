@@ -3,8 +3,8 @@
 Nerve. No longer fight it. No longer lament this. Breathe a kind of peace  
 against peace. So, it all begins over and over again. Break.
 
-In a year of loss, in a season. My mother's garden
-was in full bloom the day she died.
+In a year of loss, in a season. My mother's garden  
+was in full bloom the day she died. Break.
 
 Weeded and kept artfully arranged and, so, seemingly left to its own design.  
 Irises and columbine, field daisies as if they'd always been there.
