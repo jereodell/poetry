@@ -12,7 +12,7 @@ not to know and be known, but to feed in fits and bursts.
 It couples up and seeds its crop and is itself caught or fades to a husk;  
 no less lord of the earth, in this its time.
 
-And of it, if I am so blessed to be seen,
+And of it, if I am so blessed to be seen,  
 it too takes me in.
 
 >Jere Odell, License [CC-BY](https://creativecommons.org/licenses/by/4.0/).
