@@ -1,7 +1,7 @@
 # Curse
 
 Shadow of the man who fled his daughter,  
-hid in the darker corners of her dreams,
+hid in the darker corners of her dreams --
 
 shade of the father, thin over four hundred miles  
 of lime, dishonorable in the mind, absence,
