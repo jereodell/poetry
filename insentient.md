@@ -9,8 +9,8 @@ or God’s workout gym and palace. (Who even cares anymore?)
 Sentiment long since given its way, insentient.  
 Course long since given away, consigned.
 
-Oblivious of decline, white necked and bright-eyed wary, she lands  
-in the snow crusted scar of harvest, neither messenger nor omen.
+Oblivious of decline, white necked and wary, she lands  
+in the snow-crusted scar of harvest, neither messenger nor omen.
 
 Creature neither of industry nor of sign,  
 she strides over the blasted soil one last time.
