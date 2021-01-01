@@ -13,6 +13,6 @@ pounding down in gravel and grit, this family sod.
 Enough. Call out the waters of the sea
 
 that once poured over this nameless place.  
-Face it. Have now who cares or who caries.
+Face it. Have now who cares or who carries.
 
 >Jere Odell, License [CC-BY](https://creativecommons.org/licenses/by/4.0/).
