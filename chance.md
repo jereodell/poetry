@@ -15,5 +15,4 @@ Enough! Drunkard, read me these dregs, our one cower --
 each for a common lily of the field, the midnight throat,  
 the whole self in a whorl of petals: flesh, ink, and stone.
 
-
 >Jere Odell, License [CC-BY](https://creativecommons.org/licenses/by/4.0/).
