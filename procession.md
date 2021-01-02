@@ -12,7 +12,7 @@ a better signifier of the eternal. The city, of course, fell in the ruins of its
 layered over in centuries of industry, and even the poem,  
 in so far as it belonged to the place, did not survive. What then of this?
 
-Neither memorial nor gesture of grandeur; neither myth nor contenance.  
+Neither memorial nor gesture of grandeur; neither myth nor countenance.  
 What now, but to enter the procession.
 
 >Jere Odell, License [CC-BY](https://creativecommons.org/licenses/by/4.0/).
