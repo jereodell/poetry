@@ -13,6 +13,6 @@ protrudes a patch of snow or takes flight as any eagle should.
 "Whatever draws or presses another is
 
 as much drawn or pressed by the other" --  
-and there we are, in the middle of it all, disolved.
+and there we are, in the middle of it all, dissolved.
 
 >Jere Odell, License [CC-BY](https://creativecommons.org/licenses/by/4.0/).
