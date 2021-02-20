@@ -6,7 +6,7 @@ The silent way a downramp turns; its curve blind, its way, leading.
 A ghost of automobiles and semi-tractors litter the berm or  
 the choke of sumac, briar and barbed fencing in a crumple
 
-(I have a story about you that is somewhat true.)  
+(I have a story about you that is somewhat true)  
 ends a narrative. Walk the way back.
 
 Three spans of life in three lands, later or before. My daughter's crib  

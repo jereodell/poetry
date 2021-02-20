@@ -1,6 +1,6 @@
 # Return
 
-Unheard auguries of feather and palm, the finesse of brocade,  
+Unheard auguries of feather and palm, the finesse of brocade --  
 what is to be gained in this display? Let’s put this hobby aside.
 
 Only a fool sings without offense, an encomium to folly  

@@ -6,7 +6,7 @@ or to have lost the carcass of an old cow
 and the stream, yet clear, stumbles over goose egg quartz  
 and Missouri sands. Banks of sycamore and poplar
 
-lean out, trunks water-hollowed, current ankle deep  
+lean out, trunks water-hollowed, current, clear-cut  
 and bending the length of the pasture, south and west.
 
 Even, an early litter of fall leaves. True story.  
