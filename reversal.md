@@ -1,7 +1,7 @@
 # Reversal
 
 Off. Take the turn cautiously, rightly, wrongly. Exit.  
-The silent way a downramp turns; its curve blind, its way, leading.
+The silent way a down ramp turns; its curve blind, its way, leading.
 
 A ghost of automobiles and semi-tractors litter the berm or  
 the choke of sumac, briar and barbed fencing in a crumple
