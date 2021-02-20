@@ -1,7 +1,7 @@
 # Nerve
 
 Grief is; possessed is; mean, more of madness, less of  
-lyric luv--all gibberish is; even our ill-repute. Sub-verse:
+lyric luv -- all gibberish is; even our ill-repute. Sub-verse:
 
 obeisance made of habit is; acquiesce is; forget  
 who held the razor's edge to save our necks --
