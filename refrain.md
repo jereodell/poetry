@@ -4,7 +4,7 @@ I.
 
 Blackbird (thrush, not a starling) and nightingale (thrush, not a swift) though invasive of art are less common in fact. The songs of this place are more raucous -- raw days and nights before the end times.
 
-->~<-
+<p align="center">~</p>
 
 Walking home, nights and evenings, she whistled her favorite hymns or at least the ones she knew. What the neighbors thought or who followed her to the little house (the power out, the food running low), no one knows ... anymore. And fear? Oh yes, sure. She was young and this was long before the end times.
 
