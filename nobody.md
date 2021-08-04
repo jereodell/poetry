@@ -12,8 +12,8 @@ this weak churn of borrowed words.
 First begging the saint and then robbing the corpse:  
 Is this your family or mine sitting subject to these poems?
  
-Oh Ghalib! I'll have this one voice and these voices passing time,  
-and this display and that every last jot of oblivion.
+Oh Mirza Asadullah Dickinson Ghalib! I'll have this one voice  
+and these voices passing time, and this display, and that every last jot of oblivion
 
 
 >Jere Odell, License [CC-BY](https://creativecommons.org/licenses/by/4.0/).
