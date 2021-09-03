@@ -10,7 +10,7 @@ And Dante? All of heaven and hell spins around the center of his selfies.
 (The lesser authors are jerks too, I suppose, but fail.)
 
 Closer to home, take Berryman -- for all his sins --  
-he would not get over himself and waved bon voyage to his students. 
+he would not get over himself and waved bon voyage to his students  
 in one last lurch off the bridge.
 
 The philosophers too -- dear Gramsci, bless you,  
