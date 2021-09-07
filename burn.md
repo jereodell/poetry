@@ -1,14 +1,14 @@
 # Burn
 
-The flea beetles have grown full eggplant  
+The flea beetles have grown full into eggplant  
 and the aphids feed
 
 the ants up a long stemmed cosmos,  
 little jewels of rock candy in the wind, sticky sweet  
 viridian -- summer is of an age to let itself go.
 
-Go on then.  
-Yes, you.  
+*Go on then.  
+Yes, you.*  
 (I’ll say I didn’t hear that. What now, what now ... )
 
 A crop of squirrel kits have come down from the trees,  
@@ -28,7 +28,7 @@ waiting a burn
 
 I put the tiniest of ants on the tip of my tongue --  
 
-O, my last of little loves.
+*O, my last of little loves.*
 
 
 >Jere Odell, License [CC-BY](https://creativecommons.org/licenses/by/4.0/).
