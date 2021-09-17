@@ -54,7 +54,7 @@ It seemed no one had been to visit his apartment for at least a decade and now t
 
 VI.
 
-I crawled out of the ditch (such as it was, chest deep and dark) and clawed my way up the levee a stone shelf. There in the monochrome between memory and dreams, I assumed it was my mother’s face. Lost and yet enduring, more so than I, and this and these and the end of times.
+I crawled out of the ditch (such as it was, chest deep and dark) and clawed my way up the levee to a stone shelf. There in the monochrome between memory and dreams, I assumed it was my mother’s face. Lost and yet enduring, more so than I, and this and these and the end of times.
 
 <p align="center">~</p>
 
