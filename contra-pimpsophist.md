@@ -1,6 +1,6 @@
 # Contra Pimpsophist
 
-     > * --for Al *  
+> -- for Al
 
 Mist tent streetlamp question:  
 Will wisdom take her honorarium?
