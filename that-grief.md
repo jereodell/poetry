@@ -1,4 +1,4 @@
-# That Grief Be Not a Kind of Knowing
+# That grief be not a kind of knowing ...
 
 What are we but bodies taking in air and pushing it out again;  
 this is where all the stories we tell ourselves end,
@@ -10,7 +10,7 @@ The dragonfly has its great eye upon the world,
 not to know and be known, but to feed in fits and bursts.
 
 It couples up and seeds its crop and is itself caught or fades to a husk;  
-no less lord of the earth, in this its time.
+no less a lord of the earth in this its time.
 
 And of it, if I am so blessed to be seen,  
 it too takes me in.
