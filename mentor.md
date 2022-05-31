@@ -28,6 +28,6 @@ Or maybe that I’d write something less grim
 and for once, just let it fly.
 
 Or, for God’s sake, be content  
-that we’re old enough to think it matters and too young to know why
+that we’re old enough to think it matters and too young to know why.
 
 >Jere Odell, License [CC-BY](https://creativecommons.org/licenses/by/4.0/).
