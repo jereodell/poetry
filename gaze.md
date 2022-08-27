@@ -6,7 +6,7 @@ of public faces at the counter, in the park,
 in the waiting rooms of mortality: each  
 its own map of the unspoken lost, awaited.
 
-Flesh, her check turns to the gaze, criss-crossed  
+Flesh, her check turns to the gaze, crisscrossed  
 in the deep weave; flesh, the role of fat at his nape:
 
 in this, the crease, the valley of the living.  

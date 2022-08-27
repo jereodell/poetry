@@ -6,7 +6,7 @@ the unshrinking self -- & do we sing,
 mire a-croaking full of our somebody songs?  
 And yet, here I've been of the worst of readers,
  
-heaving it back up, luke warm, this slurry,  
+heaving it back up, lukewarm, this slurry,  
 this weak churn of borrowed words.
  
 First begging the saint and then robbing the corpse:  
