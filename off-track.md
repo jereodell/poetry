@@ -21,7 +21,7 @@ They’re beyond that -- somewhere
 between this poem and the moon (the actual moon), there  
 they see the rush of all things pulse by and through,  
 without center, direction, or place.  
-No where, maybe.
+Nowhere, maybe.
 
 Here we are, though.  
 You and I and these words and that line and this.  
